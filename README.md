@@ -6,4 +6,4 @@
 
 [동영상](https://youtu.be/llS9DPy7Ya0)
 
-[사진](https://youtu.be/llS9DPy7Ya0)
+![사진](https://youtu.be/llS9DPy7Ya0)

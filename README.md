@@ -9,4 +9,4 @@
 ![사진](http://sccdn.chosun.com/news/html/2016/04/29/2016043001002432100175031.jpg)
 
 
-[!][사진](http://cfile1.uf.tistory.com/image/225B9734566CE10A08063F)
+[!][동영상](http://cfile1.uf.tistory.com/image/225B9734566CE10A08063F)
